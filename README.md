@@ -138,3 +138,8 @@ For commercial support please contact **[adorsys Team](https://adorsys.de/)**.
 
 This project is licensed under the Apache License version 2.0 - see the [LICENSE](LICENSE) file for details
 
+
+Hello Daniel,
+This is Ibrahim from Freelancer.com 
+For some reason I can't chat with you anymore on the website, but we did not finish our talk, I searched and found you hear, please write me on ibrahim.mahmoud@chi-x.io 
+Best regards
